@@ -32,5 +32,5 @@ we're reeling through the midnight streets
   
 
 
-profiles here soon
+ㅤ[strawpage](tuahtime.straw.page)
 </p
