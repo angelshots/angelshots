@@ -32,5 +32,5 @@ we're reeling through the midnight streets
   
 
 
-[strawpage](tuahtime.straw.page)ㅤㅤㅤㅤㅤ[atabook](sigilss.atabook.org)
+[atabook](sigilss.atabook.org)
 </p
