@@ -28,7 +28,8 @@ we're reeling through the midnight streets
 
 
 
-![image-removebg-preview (1) (1)](https://github.com/user-attachments/assets/65dbdead-5321-46b0-be55-261ff3417f16)
+![image-removebg-preview (6)](https://github.com/user-attachments/assets/59613f1c-da25-4e93-a27a-30a6fb8db57e)
+
 
 
 
