@@ -22,7 +22,9 @@ we're reeling through the midnight streets
 <p align="center"
 
 
-![Ghostfire_Dagger-removebg-preview](https://github.com/user-attachments/assets/8abe9906-9b72-4428-bd22-6d50812f37ca)
+
+
+![Screenshot 2025-03-26 213822](https://github.com/user-attachments/assets/a9bbc52c-65fa-4a85-923a-2d4fc6e3e5da)
 
 
 
