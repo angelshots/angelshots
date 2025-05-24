@@ -45,5 +45,5 @@ we're reeling through the midnight streets
   
 
 
-[atabook](https://sigilss.atabook.org/)ㅤㅤㅤㅤㅤㅤ[strawpage](https://twootiime.straw.page)
+[atabook](https://sigilss.atabook.org/)ㅤㅤㅤㅤㅤㅤ[strawpage](https://brokenspawnn.straw.page/)
 </p
