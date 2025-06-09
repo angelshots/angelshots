@@ -13,11 +13,11 @@
 <p align="center"
 
 
-this dream isn't feeling sweet, 
+plspls int i love to make new friends ^_^ 
 
 <p align="center"
 
-we're reeling through the midnight streets
+im afk lots so w2i !!! int before friending
 
 <p align="center"
 
@@ -28,7 +28,7 @@ we're reeling through the midnight streets
 
 
 
-![image-removebg-preview (7) (1)](https://github.com/user-attachments/assets/fdd07ad7-2d73-4de0-934b-97d729b435c2)
+![Screenshot_2025-03-26_220337-removebg-preview](https://github.com/user-attachments/assets/b536ecda-4873-47af-9ef3-9d958762de68)
 
 
 
