@@ -1,6 +1,6 @@
 <p align="center"
 
-![.](https://komarev.com/ghpvc/?username=itarinn&color=lightgrey&label=stargazers)
+![.](https://komarev.com/ghpvc/?username=itarinn&color=blue&label=stargazers)
 
 
 
