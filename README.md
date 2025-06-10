@@ -27,7 +27,6 @@ im afk lots so w2i !!! int before friending
 
 
 
-
 ![Screenshot 2025-06-08 162942 (1)](https://github.com/user-attachments/assets/573823c6-bdbc-4c70-bbdb-3d83eadc162f)
 
 
