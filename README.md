@@ -1,6 +1,6 @@
 <p align="center"
 
-![.](https://komarev.com/ghpvc/?username=itarinn&color=330C2F&label=people)
+![.](https://komarev.com/ghpvc/?username=itarinn&color=A38560&label=people)
 
 
 
@@ -21,7 +21,8 @@ im afk lots so w2i !!!
 
 <p align="center"
   
-![Screenshot 2025-06-19 155706 (1)](https://github.com/user-attachments/assets/0762bacc-7fe4-4501-938a-daca639c39fe)
+![Screenshot 2025-06-19 145844 (1)](https://github.com/user-attachments/assets/23e96e7d-1f36-4e0b-93b7-4e48d349d80e)
+
 
 
 
