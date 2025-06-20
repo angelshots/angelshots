@@ -13,11 +13,11 @@
 <p align="center"
 
 
-plspls int i love to make new friends ^_^ 
+plspls int i love to make new friends!!
 
 <p align="center"
 
-im afk lots so w2i !!! 
+im offtab lots slow reps almost always
 
 <p align="center"
   
