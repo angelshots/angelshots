@@ -13,7 +13,7 @@
 <p align="center"
 
 
-plspls int i love to make new friends!!
+plspls int/bmf id love to talk or cud
 
 <p align="center"
 
