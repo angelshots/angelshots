@@ -1,6 +1,6 @@
 <p align="center"
 
-![.](https://komarev.com/ghpvc/?username=itarinn&color=A38560&label=people)
+![.](https://komarev.com/ghpvc/?username=itarinn&color=3d3635&label=people)
 
 
 
@@ -21,19 +21,11 @@ im offtab lots slow reps almost always
 
 <p align="center"
   
-![Screenshot 2025-06-19 145844 (1)](https://github.com/user-attachments/assets/23e96e7d-1f36-4e0b-93b7-4e48d349d80e)
-
-
-
-
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=i0mugqlri8nxttys5nmkb6haj&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=52474d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
 <p align="center"
-
-
-
 
 
 
@@ -43,5 +35,5 @@ im offtab lots slow reps almost always
   
 
 
-[strawpage](https://angelshots.straw.page/)
+[strawpage](https://angelshots.straw.page/)ㅤㅤ[atabook](https://5pawn.atabook.org/)
 </p
