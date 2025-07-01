@@ -43,5 +43,5 @@ im offtab lots slow reps almost always
   
 
 
-[strawpage](https://twotimv.straw.page/)
+[strawpage](https://angelshots.straw.page/)
 </p
