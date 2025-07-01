@@ -1,10 +1,6 @@
 <p align="center"
 
-![.](https://komarev.com/ghpvc/?username=itarinn&color=3d3635&label=people)
-
-
-
-
+![.](https://komarev.com/ghpvc/?username=itarinn&color=745a65&label=people)
 
 
 
@@ -20,13 +16,18 @@ plspls int/bmf id love to talk or cud
 im offtab lots slow reps almost always
 
 <p align="center"
-  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=i0mugqlri8nxttys5nmkb6haj&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=52474d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+![Screenshot 2025-07-01 052121 (3)](https://github.com/user-attachments/assets/72674e86-9e9c-4792-8e6e-128cbc6d0da7)
 
 
 
 <p align="center"
+  
 
+
+
+
+<p align="center"
 
 
 
