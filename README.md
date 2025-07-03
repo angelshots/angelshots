@@ -17,10 +17,10 @@ im offtab lots slow reps almost always
 
 <p align="center"
 
-![ezgif com-resize (3)](https://github.com/user-attachments/assets/cfe65bc3-5811-48a2-b236-dac3adfc20d3) ![ezgif com-resize (5)](https://github.com/user-attachments/assets/98253a1d-c420-4d32-8c58-232d13a70393)
-
+![ezgif com-crop (1)](https://github.com/user-attachments/assets/8333a4f6-66dd-4755-bbe6-e59e39ad1966) ![ezgif com-crop](https://github.com/user-attachments/assets/8f650c70-e458-408c-812c-33037bed6fcc)
 
 <p align="center"
 
+[strawpage](https://angelshots.straw.page)ㅤㅤㅤㅤ[atabook](https://5pawn.atabook.org)
 
 </p
