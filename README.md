@@ -17,7 +17,10 @@ im offtab lots slow reps almost always
 
 <p align="center"
 
-![Screenshot 2025-07-01 052121 (3)](https://github.com/user-attachments/assets/72674e86-9e9c-4792-8e6e-128cbc6d0da7)
+![ezgif com-resize](https://github.com/user-attachments/assets/2cba0773-ffa2-48f2-8924-032dc2359cf9) ![ezgif com-resize (2)](https://github.com/user-attachments/assets/bbc20202-8301-4c4e-8c26-2f97809a6334)
+
+
+
 
 
 
