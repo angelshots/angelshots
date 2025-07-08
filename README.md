@@ -2,18 +2,9 @@
 
 ![.](https://komarev.com/ghpvc/?username=itarinn&color=745a65&label=people)
 
-
-
-
-
 <p align="center"
 
-
-plspls int/bmf id love to talk or cud
-
-<p align="center"
-
-im offtab lots slow reps almost always
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=McLaren&size=15&pause=2&color=745a65&center=true&vCenter=true&width=435&height=35&lines=oh+mr+wolf%2C+you+want+me+to+stay;but+i+feel+we'll+regret+it+one+day)](https://git.io/typing-svg)
 
 <p align="center"
 
