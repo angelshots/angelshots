@@ -10,6 +10,6 @@
 
 <p align="center"
 
-[strawpage](https://angelshots.straw.page)ㅤㅤㅤㅤ[atabook](https://5pawn.atabook.org)
+[strawpage](https://angelshots.straw.page)ㅤㅤ[atabook](https://5pawn.atabook.org)
 
 </p
