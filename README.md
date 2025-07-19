@@ -1,11 +1,13 @@
 <p align="center"
 
-![.](https://komarev.com/ghpvc/?username=itarinn&color=507987&label=people)
+![.](https://komarev.com/ghpvc/?username=itarinn&color=83716F&label=people)
 
 <p align="center"
 
 
-![ezgif com-resize (7)](https://github.com/user-attachments/assets/2dbc159a-d08d-477d-83c7-8666d683da0d)
+![ezgif com-crop (1)](https://github.com/user-attachments/assets/136073fd-1b3c-4763-97d5-a305c7e846f7) ![ezgif com-crop](https://github.com/user-attachments/assets/6e9e9e72-5690-4467-9e5a-025f604e40d0)
+
+
 
 
 <p align="center"
