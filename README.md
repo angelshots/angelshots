@@ -1,11 +1,13 @@
 <p align="center"
 
-![.](https://komarev.com/ghpvc/?username=itarinn&color=5C799C&label=people)
+![.](https://komarev.com/ghpvc/?username=itarinn&color=231F20&label=people)
 
 <p align="center"
 
 
-![](https://github.com/user-attachments/assets/574a5498-0e83-467f-a522-4188193af4ff)
+![](https://github.com/user-attachments/assets/696943c9-144d-4149-891e-edc85bf39ec7)
+
+
 
 
 <p align="center"
