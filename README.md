@@ -1,20 +1,20 @@
 <p align="center"
 
-![.](https://komarev.com/ghpvc/?username=itarinn&color=111D4A&label=people)
+![.](https://komarev.com/ghpvc/?username=itarinn&color=999999&label=people)
 
 <p align="center"
 
 
-![ezgif com-resize (9)](https://github.com/user-attachments/assets/12821315-dd47-4f9e-ae96-446173cc8b7d) ![ezgif com-resize (10)](https://github.com/user-attachments/assets/4e618883-b777-4578-a8d0-9b1c5d52d9bf) ![ezgif com-resize (11)](https://github.com/user-attachments/assets/b8f472bc-6ff8-4575-a909-31734d0b6358)
+![0726-ezgif com-resize](https://github.com/user-attachments/assets/417ebde0-3a62-431b-9e9a-3e1d5d02a178)
 
 
 <p align="center"
 
-<sub> art by ch0c00n on twt</sub> 
+<sub>hi i am a wildlife photographer and i took this video ❤️</sub> 
 
 <p align="center"
 
-<sub>hi...follow and ill give u a sloppy kiss on the cheek..</sub>
+<sub>follow and ill give u a sloppy kiss on the cheek</sub>
 
 
 
