@@ -10,11 +10,9 @@
 
 <p align="center"
 
-<sub>hi i am a wildlife photographer and i took this video ❤️</sub> 
+<sub>hi i am a wildlife photographer and i took this video</sub> 
 
 <p align="center"
-
-<sub>follow and ill give u a sloppy kiss on the cheek</sub>
 
 
 
