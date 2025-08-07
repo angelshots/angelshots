@@ -18,6 +18,6 @@
 
 <p align="center"
 
-<sub>[STRAWPAGE](https://angelshots.straw.page)ㅤ[ATA](https://5pawn.atabook.org)</sub>
+<sub>[STRAWPAGE](https://angelshots.straw.page)ㅤ[ATA](https://alleycat.atabook.org)</sub>
 
 </p
