@@ -4,7 +4,7 @@
 
 <p align="center"
 
-![0726-ezgif com-resize](https://github.com/user-attachments/assets/0104dd1a-efc5-45b3-a042-dc6443dcd5f7)
+![](https://github.com/user-attachments/assets/c50ae825-62ad-432d-aa8d-dc9ab214dfdd)
 
 <p align="center"
 
