@@ -4,7 +4,8 @@
 
 <p align="center"
 
-![](https://github.com/user-attachments/assets/5a99f974-052e-4c4b-bdac-59e043ee87c5)
+
+![](https://github.com/user-attachments/assets/4400171f-12e1-46e6-86eb-65ab28ec55ad)
 
 <p align="center"
 
