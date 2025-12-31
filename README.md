@@ -5,8 +5,8 @@
 <p align="center"
 
 
-![](https://github.com/user-attachments/assets/cbb9fc60-911a-4b89-aacd-3d21f38088b3)
 
+![](https://github.com/user-attachments/assets/37852da1-e3ce-48a2-bf2c-3ecb8a02040e)
 
 
 
