@@ -5,8 +5,9 @@
 <p align="center"
 
 
+![deathtrapduo](https://github.com/user-attachments/assets/d9a6b56d-7d6b-4e64-8041-1d3748365619)
 
-![](https://github.com/user-attachments/assets/37852da1-e3ce-48a2-bf2c-3ecb8a02040e)
+
 
 <p align="center"
 
