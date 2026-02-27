@@ -11,6 +11,6 @@
 
 <p align="center"
 
-<sub> [ATA](https://alleycat.atabook.org)ㅤㅤ[STRAW](angelshotss.straw.page)</sub>
+<sub> [ATA](https://alleycat.atabook.org)ㅤㅤ[STRAW](https://angelshotss.straw.page)</sub>
 
 </p
