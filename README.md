@@ -11,6 +11,6 @@
 
 <p align="center"
 
-<sub> SIGN MU [ATA](https://alleycat.atabook.org) other links coming NEVER!</sub>
+<sub> [ATA](https://alleycat.atabook.org)ㅤㅤ[STRAW](angelshotss.straw.page)</sub>
 
 </p
