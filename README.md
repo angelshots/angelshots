@@ -11,6 +11,6 @@
 
 <p align="center"
 
-<sub> [ATABOOK!](https://alleycat.atabook.org)ㅤ![pie](https://github.com/user-attachments/assets/e2eb9403-25e8-4982-bc3f-cd08454ccbd7)ㅤ[ARTFIGHT!](https://artfight.net/~angelshotss)</sub>
+<sub> [ATABOOK!](https://alleycat.atabook.org)ㅤ![pie](https://github.com/user-attachments/assets/a4c74294-d35d-4860-8fc1-41b20f053fb5)ㅤ[ARTFIGHT!](https://artfight.net/~angelshotss)</sub>
 
 </p
