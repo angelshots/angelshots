@@ -1,12 +1,11 @@
 <p align="center"
 
-![.](https://komarev.com/ghpvc/?username=itarinn&color=8d9c5c&label=^.^)
+![.](https://komarev.com/ghpvc/?username=itarinn&color=c2bc5b&label=^.^)
 
 <p align="center"
 
 
-![apel](https://github.com/user-attachments/assets/036ac5e0-252a-4948-bf47-5484295c655b)
-
+![apel](https://github.com/user-attachments/assets/249ebc9d-4047-40c6-9ab1-f02a6a23e713)
 
 
 <p align="center"
