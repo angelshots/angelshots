@@ -10,6 +10,6 @@
 
 <p align="center"
 
-<sub> [ATABOOK!](https://alleycat.atabook.org)ㅤ![pie](https://github.com/user-attachments/assets/a4c74294-d35d-4860-8fc1-41b20f053fb5)ㅤ[ARTFIGHT!](https://artfight.net/~angelshotss)</sub>
+<sub> [新BOOK](https://alleycat.atabook.org)ㅤ![pie](https://github.com/user-attachments/assets/a4c74294-d35d-4860-8fc1-41b20f053fb5)ㅤ[ARTFIGHT](https://artfight.net/~angelshotss)</sub>
 
 </p
